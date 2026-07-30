@@ -8,7 +8,7 @@
 $$\color{#FBFBFB}rᥱᥴ᥆mmᥱᥒძ\ \color{#D9EAFD}mᥱ\ \color{#C4D9FF}ᥴᥲ𝗍ᥱg᥆rіᥱs!$$
 
 <p align="center">
- [straw](https://titletown.straw.page/)
+
   
   <p align="center">
   <img width="98" height="34" alt="bow" src="https://github.com/user-attachments/assets/097ad329-fe50-4e3b-b0af-bce33d22ac1b" />

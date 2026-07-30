@@ -1,6 +1,6 @@
 
 <p align="center">
-<img width="600" height="267" alt="624e2f22a40bb5ca09986d47b398c1a0" src="https://github.com/user-attachments/assets/55dcddef-6447-4f5a-a338-8b0eb2be72e1" />
+<img width="1200" height="279" alt="5d5d65e417ace806fbc33e8e16db7f91" src="https://github.com/user-attachments/assets/5f1affcc-9326-4aa2-9b35-13890dc64f49" />
 
 <p align="center">
 $$\color{#FBFBFB}rᥱᥴ᥆mmᥱᥒძ\ \color{#D9EAFD}mᥱ\ \color{#C4D9FF}ᥴᥲ𝗍ᥱg᥆rіᥱs!$$

@@ -8,8 +8,18 @@
 
 <p align="center"><a href=https://nominations.straw.page>straw</a>
   
-  <div align="center"><img width="98" height="34" alt="bow" src="https://github.com/user-attachments/assets/097ad329-fe50-4e3b-b0af-bce33d22ac1b" />
+  <p align="center"><img width="98" height="34" alt="bow" src="https://github.com/user-attachments/assets/097ad329-fe50-4e3b-b0af-bce33d22ac1b" />
 
+**ᥕᥱᥣᥣ kᥒ᥆ᥕᥒ ⍴᥆ᥒіᥱs:**
 
+**⍴rᥱ𝗍𝗍іᥱs𝗍 ⍴᥆ᥒіᥱs:**
 
+**ᥴᥙ𝗍ᥱs𝗍 ⍴᥆ᥒіᥱs:**
 
+<p align="center"><img width="601" height="21" alt="1000001273" src="https://github.com/user-attachments/assets/5f6654ed-6461-48a7-a271-780aa203cb65" />
+
+**𝖿rіᥱᥒძ gr᥆ᥙ⍴s:**
+
+<p align="center"><img width="601" height="21" alt="1000001273" src="https://github.com/user-attachments/assets/5f6654ed-6461-48a7-a271-780aa203cb65" />
+
+# ᥴһᥲrᥲᥴ𝗍ᥱr's ᥆𝖿 ⍴᥆ᥒᥡ𝗍᥆ᥕᥒ !

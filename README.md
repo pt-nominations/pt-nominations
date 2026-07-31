@@ -20,6 +20,6 @@
 
 **𝖿rіᥱᥒძ gr᥆ᥙ⍴s:**
 
-<p align="center"><img width="601" height="21" alt="1000001273" src="https://github.com/user-attachments/assets/5f6654ed-6461-48a7-a271-780aa203cb65" />
 
-# ᥴһᥲrᥲᥴ𝗍ᥱr's ᥆𝖿 ⍴᥆ᥒᥡ𝗍᥆ᥕᥒ !
+
+# $$\color{#FBFBFB}ᥴһᥲrᥲᥴ𝗍ᥱr's$$ $$\color{#D9EAFD}᥆𝖿\$$ $$\color{#C4D9FF}p᥆ᥒᥡ𝗍᥆ᥕᥒ\$$ !

@@ -12,7 +12,7 @@
 
 **ᥕᥱᥣᥣ kᥒ᥆ᥕᥒ ⍴᥆ᥒіᥱs:** <a href=https://github.com/AcxerSonnellino>AcxerSonnellino</a> <a href=https://github.com/Xaplastcore>Xaplastcore</a> <a href=https://github.com/Gamblersi>Gamblersi</a> <a href=https://github.com/01-800-PAPU>01-800-PAPU</a> <a href=https://github.com/AndroidSentByCyberLife>AndroidSentByCyberLife</a>
 
-**⍴rᥱ𝗍𝗍іᥱs𝗍 ⍴᥆ᥒіᥱs:** <a href=https://github.com/misfortunes-s>misfortunes-s</a> <a href=https://github.com/itrap-2245>itrap-2245</a> <a href=https://github.com/aesvic>aesvic</a> <a href=https://github.com/ArtistsLeafRibbon>ArtistsLeafRibbon</a> <a href=https://github.com/01yaoimaster>01yaoimaster</a> <a href=https://github.com/sproutseedlymain>sproutseedlymain</a>
+**⍴rᥱ𝗍𝗍іᥱs𝗍 ⍴᥆ᥒіᥱs:** <a href=https://github.com/misfortunes-s>misfortunes-s</a> <a href=https://github.com/itrap-2245>itrap-2245</a> <a href=https://github.com/aesvic>aesvic</a> <a href=https://github.com/ArtistsLeafRibbon>ArtistsLeafRibbon</a> <a href=https://github.com/01yaoimaster>01yaoimaster</a> <a href=https://github.com/sproutseedlymain>sproutseedlymain</a> <a href=https://github.com/aklangell>aklangell</a> <a href=https://github.com/AcxerSonnellino>AcxerSonnellino</a> <a href=https://github.com/Nadd-nadd>Nadd-nadd</a>
 
 **ᥴᥙ𝗍ᥱs𝗍 ⍴᥆ᥒіᥱs:** <a href=https://github.com/pupfies>pupfies</a> <a href=https://github.com/electrifypink>electrifypink</a> <a href=https://github.com/pawfectangel>pawfectangel</a>
 
@@ -20,7 +20,7 @@
 
 **𝖿rіᥱᥒძ gr᥆ᥙ⍴s:** $$\color{#FBFBFB}𝚝𝐡𝚎\ \color{#D9EAFD}𝚋𝐥𝚞𝐞\ \color{#C4D9FF}𝚏𝐚𝚖𝐢𝚕𝐲!$$ - <a href=https://github.com/01-800-PAPU>01-800-PAPU</a> <a href=https://github.com/Belovedz>Belovedz</a> <a href=https://github.com/cellbito>cellbito</a> <a href=https://github.com/garferss>garferss</a> <a href=https://github.com/Mizziepoms>Mizziepoms</a> <a href=https://github.com/motorwaygirl>motorwaygirl</a> <a href=https://github.com/pixstrs>pixstrs</a> <a href=https://github.com/paladinvw>paladinvw</a> <a href=https://github.com/solroses>solroses</a> .
 
-**ᥴ+һᥱrs:** <a href=https://github.com/ArtistsLeafRibbon>ArtistsLeafRibbon</a> <a href=https://github.com/Xaplastcore>Xaplastcore</a>
+**ᥴ+һᥱrs:** <a href=https://github.com/ArtistsLeafRibbon>ArtistsLeafRibbon</a> <a href=https://github.com/Xaplastcore>Xaplastcore</a> <a href=https://github.com/DEADP0ET>DEADP0ET</a>
 
 
 
@@ -44,13 +44,23 @@
 
 <a href=https://github.com/aesvic>aesvic</a> is pony town's **$$\color{#FEFEF5}𝚟𝐞𝚛\\color{#FFF2C2}𝚒𝐭𝚢!$$**
 
+<a href=https://github.com/abookslines>abookslines</a> is pony town's **$$\color{#DFD5EB}𝚗𝐨\\color{#AB91CA}𝚕𝐢!$$**
+
+<a href=https://github.com/Bigguykoi>Bigguykoi</a> is pony town's **$$\color{#F5E2DC}𝚝𝐨𝚗𝐲\ \color{#E2A897}𝚜𝐭𝚊𝐫𝚔!$$**
+
+<a href=https://github.com/B3RDLY>B3RDLY</a> is pony town's **$$\color{#DFEBF5}𝚋𝐞𝚛\\color{#7BADD5}𝚍𝐥𝚢!$$**
+
 <a href=https://github.com/biII-cipher>biII-cipher</a> is pony town's **$$\color{#FFF8E6}𝚋𝐢𝚕𝐥\ \color{#FFECC4}𝚌𝐢𝚙𝐡𝚎𝐫!$$**
+
+<a href=https://github.com/Corintheuss>Corintheuss</a> is pony town's **$$\color{#EAF7FF}𝚊𝐫𝚝\\color{#C8DBE5}𝚏𝐮𝚕!$$**
 
 <a href=https://github.com/creation0fhatred>creation0fhatred</a> is pony town's **$$\color{#E6E9E8}𝟷𝐱𝟷𝐱\\color{#B7D0C3}𝟷𝐱𝟷!$$**
 
 <a href=https://github.com/DEADP0ET>DEADP0ET</a> is pony town's **$$\color{#E8F2FA}𝟶𝟎𝟽\\color{#C3E2FA}𝚗𝟕!$$**
 
 <a href=https://github.com/demon-king-of-salvation>demon-king-of-salvation</a> is pony town's **$$\color{#F2F7FF}𝚔𝐢𝚖\ \color{#A8B1BF}𝚍𝐨𝚔𝐣𝚊!$$**
+
+<a href=https://github.com/dewittelurv>dewittelurv</a> is pony town's **$$\color{#F7EFCD}𝚝𝐡𝚎𝐨𝚋𝐚𝚕\\color{#F7D9A3}𝚍𝐭𝚑𝐞𝚋𝐢𝚛𝐝!$$**
 
 <a href=https://github.com/electrifypink>electrifypink</a> is pony town's **$$\color{#E2FBF8}𝚙𝐮𝚛𝐬\\color{#ADE9E3}𝚞𝐞𝚛!$$**
 
@@ -64,9 +74,13 @@
 
 <a href=https://github.com/pupfies>pupfies</a> is pony town's **$$\color{#DFDFF4}𝚠𝐢𝚏\\color{#B8B8DD}𝚒𝐞𝚜!$$**
 
+<a href=https://github.com/Knuckl3z>Knuckl3z</a> is pony town's **$$\color{#F2D3D3}𝚜𝐡𝚊𝐝𝚘𝐰\ \color{#CF5E5E}𝚝𝐡𝚎\ \color{#C43B3B}𝚑𝐞𝚍𝐠𝚎𝐡𝚘𝐠!$$**
+
 <a href=https://github.com/killerbunnies>killerbunnies</a> is pony town's **$$\color{#D0E3F8}𝚍𝐞𝚛𝐚\\color{#A9D0FA}𝚙𝐜𝚑𝐮!$$**
 
 <a href=https://github.com/L0st-Veiw>L0st-Veiw</a> is pony town's **$$\color{#E6F5FF}𝚝𝐚𝚒𝐥\ \color{#B0D8F8}𝚐𝐚𝚝𝐞!$$**
+
+<a href=https://github.com/loveruffle>loveruffle</a> is pony town's **$$\color{#DFE8F5}𝚢𝐨𝚒𝐜𝚑𝐢\ \color{#BED1EB}𝚒𝐬𝚊𝐠𝚒!$$**
 
 <a href=https://github.com/riddledbatz>riddlebatz</a> is pony town's **$$\color{#E1E8F1}𝚛𝐢𝚍\\color{#B5BECB}𝚍𝐥𝚎𝐫!$$**
 

@@ -26,11 +26,11 @@
 
 <a href=https://github.com/5poke>5poke</a> is pony town's **$$\color{#CEC5FC}𝚠𝐞𝚖\\color{#B59DED}𝚖𝐛𝚞!$$**
 
-<a href=https://github.com/AcxerSonnellino>AcxerSonnellino</a> is pony town's $$\color{#AED6D1}𝚐𝐮𝚎𝐬𝚝$$ $$\color{#78B2BF}𝟷𝟑𝟹𝟕!$$
+<a href=https://github.com/AcxerSonnellino>AcxerSonnellino</a> is pony town's **$$\color{#E6FAFF}𝚐𝐮𝚎𝐬𝚝$$ $$\color{#BDE5FF}𝟷𝟑𝟹𝟕!$$**
 
-<a href=https://github.com/accidentaldeath>accidentaldeath</a> is pony town's $$\color{#E66C7A}𝚌𝐡𝚊\\color{#D45959}𝚛𝐚!$$
+<a href=https://github.com/accidentaldeath>accidentaldeath</a> is pony town's **$$\color{#FFD9D9}𝚌𝐡𝚊\\color{#FDB9B9}𝚛𝐚!$$**
 
-<a href=https://github.com/biII-cipher>biII-cipher</a> is pony town's $$\color{#FADAA2}𝚋𝐢𝚕𝐥\ \color{#E3B57D}𝚌𝐢𝚙𝐡𝚎𝐫!$$
+<a href=https://github.com/biII-cipher>biII-cipher</a> is pony town's **$$\color{#FFF8E6}𝚋𝐢𝚕𝐥\ \color{#FFECC4}𝚌𝐢𝚙𝐡𝚎𝐫!$$**
 
-<a href=https://github.com/creation0fhatred>creation0fhatred</a> is pony town's $$\color{#7B9681}𝟷𝐱𝟷𝐱\\color{#36523E}𝟷𝐱𝟷!$$
+<a href=https://github.com/creation0fhatred>creation0fhatred</a> is pony town's **$$\color{#DAF7DC}𝟷𝐱𝟷𝐱\\color{#ACEAAF}𝟷𝐱𝟷!$$**
 

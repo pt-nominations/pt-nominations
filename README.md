@@ -10,7 +10,7 @@
   
   <p align="center"><img width="98" height="34" alt="bow" src="https://github.com/user-attachments/assets/097ad329-fe50-4e3b-b0af-bce33d22ac1b" />
 
-**ᥕᥱᥣᥣ kᥒ᥆ᥕᥒ ⍴᥆ᥒіᥱs:** <a href=https://github.com/AcxerSonnellino>AcxerSonnellino</a> <a href=https://github.com/Gamblersi>Gamblersi</a> <a href=https://github.com/01-800-PAPU>01-800-PAPU</a> <a href=https://github.com/AndroidSentByCyberLife>AndroidSentByCyberLife</a>
+**ᥕᥱᥣᥣ kᥒ᥆ᥕᥒ ⍴᥆ᥒіᥱs:** <a href=https://github.com/AcxerSonnellino>AcxerSonnellino</a> <a href=https://github.com/Xaplastcore>Xaplastcore</a> <a href=https://github.com/Gamblersi>Gamblersi</a> <a href=https://github.com/01-800-PAPU>01-800-PAPU</a> <a href=https://github.com/AndroidSentByCyberLife>AndroidSentByCyberLife</a>
 
 **⍴rᥱ𝗍𝗍іᥱs𝗍 ⍴᥆ᥒіᥱs:** <a href=https://github.com/misfortunes-s>misfortunes-s</a> <a href=https://github.com/itrap-2245>itrap-2245</a> <a href=https://github.com/aesvic>aesvic</a> <a href=https://github.com/ArtistsLeafRibbon>ArtistsLeafRibbon</a> <a href=https://github.com/01yaoimaster>01yaoimaster</a> <a href=https://github.com/sproutseedlymain>sproutseedlymain</a>
 
@@ -20,7 +20,7 @@
 
 **𝖿rіᥱᥒძ gr᥆ᥙ⍴s:** $$\color{#FBFBFB}𝚝𝐡𝚎\ \color{#D9EAFD}𝚋𝐥𝚞𝐞\ \color{#C4D9FF}𝚏𝐚𝚖𝐢𝚕𝐲!$$ - <a href=https://github.com/01-800-PAPU>01-800-PAPU</a> <a href=https://github.com/Belovedz>Belovedz</a> <a href=https://github.com/cellbito>cellbito</a> <a href=https://github.com/garferss>garferss</a> <a href=https://github.com/Mizziepoms>Mizziepoms</a> <a href=https://github.com/motorwaygirl>motorwaygirl</a> <a href=https://github.com/pixstrs>pixstrs</a> <a href=https://github.com/paladinvw>paladinvw</a> <a href=https://github.com/solroses>solroses</a> .
 
-**ᥴ+һᥱrs:** <a href=https://github.com/ArtistsLeafRibbon>ArtistsLeafRibbon</a>
+**ᥴ+һᥱrs:** <a href=https://github.com/ArtistsLeafRibbon>ArtistsLeafRibbon</a> <a href=https://github.com/Xaplastcore>Xaplastcore</a>
 
 
 
@@ -60,9 +60,13 @@
 
 <a href=https://github.com/itrap-2245>itrap-2245</a> is pony town's **$$\color{#F5F5F1}𝚒𝐭𝚛𝐚\\color{#E9E8CB}𝚙𝐩𝚎𝐝!$$**
 
+<a href=https://github.com/puphacker>puphacker</a> is pony town's **$$\color{#DCF5E0}𝚗𝐞𝚝\\color{#99D1A2}𝚣𝐚𝚌𝐡!$$**
+
 <a href=https://github.com/pupfies>pupfies</a> is pony town's **$$\color{#DFDFF4}𝚠𝐢𝚏\\color{#B8B8DD}𝚒𝐞𝚜!$$**
 
 <a href=https://github.com/killerbunnies>killerbunnies</a> is pony town's **$$\color{#D0E3F8}𝚍𝐞𝚛𝐚\\color{#A9D0FA}𝚙𝐜𝚑𝐮!$$**
+
+<a href=https://github.com/L0st-Veiw>L0st-Veiw</a> is pony town's **$$\color{#E6F5FF}𝚝𝐚𝚒𝐥\ \color{#B0D8F8}𝚐𝐚𝚝𝐞!$$**
 
 <a href=https://github.com/riddledbatz>riddlebatz</a> is pony town's **$$\color{#E1E8F1}𝚛𝐢𝚍\\color{#B5BECB}𝚍𝐥𝚎𝐫!$$**
 
@@ -75,6 +79,8 @@
 <a href=https://github.com/sea-shantyyy>sea-shantyyy</a> is pony town's **$$\color{#FFF6E4}𝚜𝐡𝚎𝐝𝚕\\color{#FFE8C3}𝚎𝐭𝚜𝐤𝚢!$$**
 
 <a href=https://github.com/WhispedVanilla>WhispedVanlla</a> is pony town's **$$\color{#E4F1FF}𝚜𝐥𝚒𝐧𝚐\\color{#B3D7FB}𝚜𝐡𝚘𝐭!$$**
+
+<a href=https://github.com/Xaplastcore>Xaplastcore</a> is pony town's **$$\color{#CFC1EF}𝚘𝐩𝚝𝐢𝚖𝐮𝚜\ \color{#9D84D2}𝚙𝐫𝚒𝐦𝚎!$$** $\tiny{\textsf{transformers: shattered glass}}$
 
 <a href=https://github.com/yanderetan>yanderetan</a> is pony town's **$$\color{#FFDCEF}𝚙𝐨𝚕𝐚\\color{#FFBBE0}𝚛𝐜𝚞𝐛!$$**
 

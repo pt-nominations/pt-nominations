@@ -20,7 +20,7 @@
 
 <p align="center"><img width="601" height="21" alt="1000001273" src="https://github.com/user-attachments/assets/5f6654ed-6461-48a7-a271-780aa203cb65" />
 
-**𝖿rіᥱᥒძ gr᥆ᥙ⍴s:** $$\color{#FBFBFB}𝚝𝐡𝚎\ \color{#D9EAFD}𝚋𝐥𝚞𝐞\ \color{#C4D9FF}𝚏𝐚𝚖𝐢𝚕𝐲!$$ - <a href=https://github.com/01-800-PAPU>01-800-PAPU</a> <a href=https://github.com/Belovedz>Belovedz</a> <a href=https://github.com/cellbito>cellbito</a> <a href=https://github.com/garferss>garferss</a> <a href=https://github.com/Mizziepoms>Mizziepoms</a> <a href=https://github.com/motorwaygirl>motorwaygirl</a> <a href=https://github.com/pixstrs>pixstrs</a> <a href=https://github.com/paladinvw>paladinvw</a> <a href=https://github.com/solroses>solroses</a> .
+**𝖿rіᥱᥒძ gr᥆ᥙ⍴s:** $$\color{#FBFBFB}𝚝𝐡𝚎\ \color{#D9EAFD}𝚋𝐥𝚞𝐞\ \color{#C4D9FF}𝚏𝐚𝚖𝐢𝚕𝐲!$$ - <a href=https://github.com/01-800-PAPU>01-800-PAPU</a> <a href=https://github.com/Belovedz>Belovedz</a> <a href=https://github.com/cellbito>cellbito</a> <a href=https://github.com/garferss>garferss</a> <a href=https://github.com/Mizziepoms>Mizziepoms</a> <a href=https://github.com/motorwaygirl>motorwaygirl</a> <a href=https://github.com/pixstrs>pixstrs</a> <a href=https://github.com/paladinvw>paladinvw</a> <a href=https://github.com/solroses>solroses</a> . $$\color{#F9F8F6}𝚙𝐦𝚌\ \color{#EFE9E3}𝚝𝐫𝚒𝐨!$$ - [6ullets](https://github.com/6ullets) [piehiker](https://github.com/piehiker) [yvoisen](https://github.com/yvoisen) .
 
 **ᥴ+һᥱrs:** <a href=https://github.com/ArtistsLeafRibbon>ArtistsLeafRibbon</a> <a href=https://github.com/Xaplastcore>Xaplastcore</a> <a href=https://github.com/DEADP0ET>DEADP0ET</a>
 
@@ -90,14 +90,6 @@
 
 <a href=https://github.com/itrap-2245>itrap-2245</a> is pony town's **$$\color{#F5F5F1}𝚒𝐭𝚛𝐚\\color{#E9E8CB}𝚙𝐩𝚎𝐝!$$**
 
-<a href=https://github.com/puphacker>puphacker</a> is pony town's **$$\color{#DCF5E0}𝚗𝐞𝚝\\color{#99D1A2}𝚣𝐚𝚌𝐡!$$**
-
-<a href=https://github.com/pupfies>pupfies</a> is pony town's **$$\color{#DFDFF4}𝚠𝐢𝚏\\color{#B8B8DD}𝚒𝐞𝚜!$$**
-
-[parameowia](https://github.com/parameowia) is pony town's **$$\color{#FEF2FA}𝚜𝐤𝚒𝐭\\color{#FEC8EE}𝚝𝐥𝚎𝐬!$$**
-
-[puppyfes](https://github.com/puppyfes) is pony town's **$$\color{#F6EBFF}𝚛𝐮𝚒\ \color{#E4C3FF}𝐤𝚊𝐦𝚒𝐬𝚑𝐢𝚛𝐨!$$**
-
 <a href=https://github.com/Knuckl3z>Knuckl3z</a> is pony town's **$$\color{#F2D3D3}𝚜𝐡𝚊𝐝𝚘𝐰\ \color{#CF5E5E}𝚝𝐡𝚎\ \color{#C43B3B}𝚑𝐞𝚍𝐠𝚎𝐡𝚘𝐠!$$**
 
 <a href=https://github.com/killerbunnies>killerbunnies</a> is pony town's **$$\color{#D0E3F8}𝚍𝐞𝚛𝐚\\color{#A9D0FA}𝚙𝐜𝚑𝐮!$$**
@@ -110,7 +102,19 @@
 
 <a href=https://github.com/loveruffle>loveruffle</a> is pony town's **$$\color{#DFE8F5}𝚢𝐨𝚒𝐜𝚑𝐢\ \color{#BED1EB}𝚒𝐬𝚊𝐠𝚒!$$**
 
+<a href=https://github.com/puphacker>puphacker</a> is pony town's **$$\color{#DCF5E0}𝚗𝐞𝚝\\color{#99D1A2}𝚣𝐚𝚌𝐡!$$**
+
+<a href=https://github.com/pupfies>pupfies</a> is pony town's **$$\color{#DFDFF4}𝚠𝐢𝚏\\color{#B8B8DD}𝚒𝐞𝚜!$$**
+
+[parameowia](https://github.com/parameowia) is pony town's **$$\color{#FEF2FA}𝚜𝐤𝚒𝐭\\color{#FEC8EE}𝚝𝐥𝚎𝐬!$$**
+
+[puppyfes](https://github.com/puppyfes) is pony town's **$$\color{#F6EBFF}𝚛𝐮𝚒\ \color{#E4C3FF}𝐤𝚊𝐦𝚒𝐬𝚑𝐢𝚛𝐨!$$**
+
 <a href=https://github.com/Nadd-nadd>Nadd-nadd</a> is pony town's **$$\color{#FFF0C7}𝚜𝐢\\color{#FFE6A1}𝚐𝐢𝚕!$$** $\tiny{\textsf{nullscape}}$
+
+[realdustsans](https://github.com/realdustsans) is pony town's $$\color{#FFDBFD}𝚍𝐮𝚜𝐭\ \color{#C9BEFF}𝚜𝐚𝚗𝐬!$$
+
+[neverwanted2dance](https://github.com/neverwanted2dance) is pony town's $$\color{#F6F0D7}𝚟𝐞𝚎\ \color{#C5D89D}𝐯𝚎𝐫𝚜𝐢𝚘𝐧\ \color{#9CAB84}𝟷!$$
 
 <a href=https://github.com/riddledbatz>riddlebatz</a> is pony town's **$$\color{#E1E8F1}𝚛𝐢𝚍\\color{#B5BECB}𝚍𝐥𝚎𝐫!$$**
 
@@ -125,6 +129,10 @@
 <a href=https://github.com/ShellzyFossilzianz>ShellzyFossilzianz</a> is pony town's **$$\color{#FFE2E6}𝚝𝐡𝚛\\color{#FFB2BB}𝚎𝐞!$$** $\tiny{\textsf{bfdi / tpot}}$
 
 [scarsonmythigh](https://github.com/scrsonmythighs) is pony town's **$$\color{#E4EAF2}𝚐𝐨𝚓𝐨\ \color{#A5B9CF}𝚜𝐚𝚝𝐨𝚛𝐮!$$**
+
+[spokeisheres](https://github.com/spokeisheres) is pony town's $$\color{#B9B4C7}𝚜𝐩𝚘\\color{#5C5470}𝚔𝐞!$$
+
+[sw33tsug4rcookie](https://github.com/sw33tsug4rcookie) is pony town's $$\color{#F5E8C7}𝚐𝐢𝚗𝐠𝚎𝐫\ \color{#DEBA9D}𝚝𝐡𝚎\ \color{#9E7777}𝐜𝚘𝐨𝚔𝐢𝚎!$$
 
 <a href=https://github.com/undyingregret>undyingregret</a> is pony town's **$$\color{#DDCECF}𝚙𝐞\\color{#C69294}𝚜𝐭!$$**
 

@@ -12,11 +12,11 @@
   
   <p align="center"><img width="98" height="34" alt="bow" src="https://github.com/user-attachments/assets/097ad329-fe50-4e3b-b0af-bce33d22ac1b" />
 
-**ᥕᥱᥣᥣ kᥒ᥆ᥕᥒ ⍴᥆ᥒіᥱs:** <a href=https://github.com/AcxerSonnellino>AcxerSonnellino</a> <a href=https://github.com/Xaplastcore>Xaplastcore</a> <a href=https://github.com/Gamblersi>Gamblersi</a> <a href=https://github.com/01-800-PAPU>01-800-PAPU</a> <a href=https://github.com/AndroidSentByCyberLife>AndroidSentByCyberLife</a> [horroryaoi](https://github.com/horroryaoi)
+**ᥕᥱᥣᥣ kᥒ᥆ᥕᥒ ⍴᥆ᥒіᥱs:** <a href=https://github.com/AcxerSonnellino>AcxerSonnellino</a> <a href=https://github.com/Xaplastcore>Xaplastcore</a> <a href=https://github.com/Gamblersi>Gamblersi</a> <a href=https://github.com/01-800-PAPU>01-800-PAPU</a> <a href=https://github.com/AndroidSentByCyberLife>AndroidSentByCyberLife</a> [horroryaoi](https://github.com/horroryaoi) [evbomc](https://github.com/evbomc)
 
 **⍴rᥱ𝗍𝗍іᥱs𝗍 ⍴᥆ᥒіᥱs:** <a href=https://github.com/misfortunes-s>misfortunes-s</a> <a href=https://github.com/itrap-2245>itrap-2245</a> <a href=https://github.com/aesvic>aesvic</a> <a href=https://github.com/ArtistsLeafRibbon>ArtistsLeafRibbon</a> <a href=https://github.com/01yaoimaster>01yaoimaster</a> <a href=https://github.com/sproutseedlymain>sproutseedlymain</a> <a href=https://github.com/aklangell>aklangell</a> <a href=https://github.com/AcxerSonnellino>AcxerSonnellino</a> <a href=https://github.com/Nadd-nadd>Nadd-nadd</a> [puppyfes](https://github.com/puppyfes)
 
-**ᥴᥙ𝗍ᥱs𝗍 ⍴᥆ᥒіᥱs:** <a href=https://github.com/pupfies>pupfies</a> <a href=https://github.com/electrifypink>electrifypink</a> <a href=https://github.com/pawfectangel>pawfectangel</a> [parameowia](https://github.com/parameowia)
+**ᥴᥙ𝗍ᥱs𝗍 ⍴᥆ᥒіᥱs:** <a href=https://github.com/pupfies>pupfies</a> <a href=https://github.com/electrifypink>electrifypink</a> <a href=https://github.com/pawfectangel>pawfectangel</a> [parameowia](https://github.com/parameowia) [realdustsans](https://github.com/realdustsans)
 
 <p align="center"><img width="601" height="21" alt="1000001273" src="https://github.com/user-attachments/assets/5f6654ed-6461-48a7-a271-780aa203cb65" />
 
@@ -76,6 +76,8 @@
 
 <a href=https://github.com/electrifypink>electrifypink</a> is pony town's **$$\color{#E2FBF8}𝚙𝐮𝚛𝐬\\color{#ADE9E3}𝚞𝐞𝚛!$$**
 
+[evbomc](https://github.com/evbomc) is pony town's $$\color{#E8F5E9}𝚎𝐯\\color{#A5D6A7}𝚋𝐨!$$
+
 <a href=https://github.com/Gamblersi>Gamblersi</a> is pony town's **$$\color{#EAF7FF}𝚌𝐡𝚊\\color{#C8DBE5}𝐧𝚌𝚎!$$**
 
 <a href=https://github.com/Grimembrace>Grimembrace</a> is pony town's **$$\color{#FFD1D3}𝚌𝐞𝚕𝐞\\color{#EBA7DD}𝚜𝐭𝚒𝐚𝚕!$$** $\tiny{\textsf{nullscape}}$
@@ -96,11 +98,15 @@
 
 [kiwiconicc](https://github.com/kiwiconicc) is pony town's **$$\color{#FFD8FE}𝚜𝐚𝚒𝐤𝚒\ \color{#FFACFD}𝐤𝚞𝐬𝚞𝐨!$$**
 
+[killwaree](https://github.com/killwaree) is pony town's $$\color{#FDEBD0}𝚍𝐨𝚌𝐭𝚘𝐫\ \color{#F7CAC9}𝚜𝐭𝚛𝐚𝚗𝐠𝚎!$$
+
 <a href=https://github.com/L0st-Veiw>L0st-Veiw</a> is pony town's **$$\color{#E6F5FF}𝚝𝐚𝚒𝐥\ \color{#B0D8F8}𝚐𝐚𝚝𝐞!$$**
 
 [LarryTrainor](https://github.com/LarryTrainor) is pony town's **$$\color{#DCD3CA}𝚕𝐞𝚕𝐚𝚗𝐝\ \color{#A39384}𝚌𝐨𝚢𝐥𝚎!$$**
 
 <a href=https://github.com/loveruffle>loveruffle</a> is pony town's **$$\color{#DFE8F5}𝚢𝐨𝚒𝐜𝚑𝐢\ \color{#BED1EB}𝚒𝐬𝚊𝐠𝚒!$$**
+
+[P4RAN01A](https://github.com/P4RAN01A) is pony town's $$\color{#9AA3AB}𝚖𝐞𝚐𝐚\\color{#818A91}𝚝𝐫𝚘𝐧!$$
 
 <a href=https://github.com/puphacker>puphacker</a> is pony town's **$$\color{#DCF5E0}𝚗𝐞𝚝\\color{#99D1A2}𝚣𝐚𝚌𝐡!$$**
 
@@ -122,11 +128,11 @@
 
 <a href=https://github.com/SQUEVIL>SQUEVIL</a> is pony town's **$$\color{#F8EBDD}𝚜𝐪𝚞𝐢\\color{#F9C6A1}𝚍𝐝𝚘!$$**
 
+<a href=https://github.com/ShellzyFossilzianz>ShellzyFossilzianz</a> is pony town's **$$\color{#FFE2E6}𝚝𝐡𝚛\\color{#FFB2BB}𝚎𝐞!$$** $\tiny{\textsf{bfdi / tpot}}$
+
 <a href=https://github.com/sproutseedlymain>sproutseedlymain</a> is pony town's **$$\color{#FFE2E8}𝚜𝐩𝚛𝐨𝚞𝐭\ \color{#EAAAB9}𝚜𝐞𝚎𝐝𝚕𝐲!$$** $\tiny{\textsf{dandys world}}$
 
 <a href=https://github.com/sea-shantyyy>sea-shantyyy</a> is pony town's **$$\color{#FFF6E4}𝚜𝐡𝚎𝐝𝚕\\color{#FFE8C3}𝚎𝐭𝚜𝐤𝚢!$$**
-
-<a href=https://github.com/ShellzyFossilzianz>ShellzyFossilzianz</a> is pony town's **$$\color{#FFE2E6}𝚝𝐡𝚛\\color{#FFB2BB}𝚎𝐞!$$** $\tiny{\textsf{bfdi / tpot}}$
 
 [scarsonmythigh](https://github.com/scrsonmythighs) is pony town's **$$\color{#E4EAF2}𝚐𝐨𝚓𝐨\ \color{#A5B9CF}𝚜𝐚𝚝𝐨𝚛𝐮!$$**
 

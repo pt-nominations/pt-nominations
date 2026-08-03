@@ -16,13 +16,13 @@
 
 **⍴rᥱ𝗍𝗍іᥱs𝗍 ⍴᥆ᥒіᥱs:** <a href=https://github.com/misfortunes-s>misfortunes-s</a> <a href=https://github.com/itrap-2245>itrap-2245</a> <a href=https://github.com/aesvic>aesvic</a> <a href=https://github.com/ArtistsLeafRibbon>ArtistsLeafRibbon</a> <a href=https://github.com/01yaoimaster>01yaoimaster</a> <a href=https://github.com/sproutseedlymain>sproutseedlymain</a> <a href=https://github.com/aklangell>aklangell</a> <a href=https://github.com/AcxerSonnellino>AcxerSonnellino</a> <a href=https://github.com/Nadd-nadd>Nadd-nadd</a> [puppyfes](https://github.com/puppyfes) [yaasuhiro](https://github.com/yaasuhiro) [arachnidace](https://github.com/arachnidace) [conexlonn](https://github.com/conexlonn)
 
-**ᥴᥙ𝗍ᥱs𝗍 ⍴᥆ᥒіᥱs:** <a href=https://github.com/pupfies>pupfies</a> <a href=https://github.com/electrifypink>electrifypink</a> <a href=https://github.com/pawfectangel>pawfectangel</a> [parameowia](https://github.com/parameowia) [realdustsans](https://github.com/realdustsans) [ramudaa](https://github.com/ramudaa)
+**ᥴᥙ𝗍ᥱs𝗍 ⍴᥆ᥒіᥱs:** <a href=https://github.com/pupfies>pupfies</a> <a href=https://github.com/electrifypink>electrifypink</a> <a href=https://github.com/pawfectangel>pawfectangel</a> [parameowia](https://github.com/parameowia) [realdustsans](https://github.com/realdustsans) [ramudaa](https://github.com/ramudaa) [siriuzs](https://github.com/siriuzs)
 
 <p align="center"><img width="601" height="21" alt="1000001273" src="https://github.com/user-attachments/assets/5f6654ed-6461-48a7-a271-780aa203cb65" />
 
 **𝖿rіᥱᥒძ gr᥆ᥙ⍴s:** $$\color{#FBFBFB}𝚝𝐡𝚎\ \color{#D9EAFD}𝚋𝐥𝚞𝐞\ \color{#C4D9FF}𝚏𝐚𝚖𝐢𝚕𝐲!$$ - <a href=https://github.com/01-800-PAPU>01-800-PAPU</a> <a href=https://github.com/Belovedz>Belovedz</a> <a href=https://github.com/cellbito>cellbito</a> <a href=https://github.com/garferss>garferss</a> <a href=https://github.com/Mizziepoms>Mizziepoms</a> <a href=https://github.com/motorwaygirl>motorwaygirl</a> <a href=https://github.com/pixstrs>pixstrs</a> <a href=https://github.com/paladinvw>paladinvw</a> <a href=https://github.com/solroses>solroses</a> . $$\color{#F9F8F6}𝚙𝐦𝚌\ \color{#EFE9E3}𝚝𝐫𝚒𝐨!$$ - [6ullets](https://github.com/6ullets) [piehiker](https://github.com/piehiker) [yvoisen](https://github.com/yvoisen) .
 
-**ᥴ+һᥱrs:** <a href=https://github.com/ArtistsLeafRibbon>ArtistsLeafRibbon</a> <a href=https://github.com/Xaplastcore>Xaplastcore</a> <a href=https://github.com/DEADP0ET>DEADP0ET</a>
+**ᥴ+һᥱrs:** <a href=https://github.com/ArtistsLeafRibbon>ArtistsLeafRibbon</a> <a href=https://github.com/Xaplastcore>Xaplastcore</a> <a href=https://github.com/DEADP0ET>DEADP0ET</a> <a href=https://github.com/zyvism>zyvism</a>
 
 
 
@@ -65,6 +65,8 @@
 <a href=https://github.com/biII-cipher>biII-cipher</a> is pony town's **$$\color{#FFF8E6}𝚋𝐢𝚕𝐥\ \color{#FFECC4}𝚌𝐢𝚙𝐡𝚎𝐫!$$**
 
 <a href=https://github.com/bunchoffriends>bunchoffriends</a> is pony towns **$$\color{#FFF7E5}𝚊𝐧𝚝𝐡\\color{#F8DAC1}𝚘𝐧𝚢\ \color{#F8DAC1}𝐩𝚘!$$**
+
+[burningsins](https://github.com/burningsins) is pony town's $$\color{#F8E5D5}𝚔𝐞𝚒𝐠𝚘\ \color{#F8D2B1}𝐭𝚊𝐤𝚊𝐦𝚒!$$ $\tiny{\textsf{my hero academia}}$
 
 <a href=https://github.com/Corintheuss>Corintheuss</a> is pony town's **$$\color{#EAF7FF}𝚊𝐫𝚝\\color{#C8DBE5}𝚏𝐮𝚕!$$**
 
@@ -150,6 +152,8 @@
 
 [neverwanted2dance](https://github.com/neverwanted2dance) is pony town's $$\color{#F6F0D7}𝚟𝐞𝚎\ \color{#C5D89D}𝐯𝚎𝐫𝚜𝐢𝚘𝐧\ \color{#9CAB84}𝟷!$$
 
+[RE0-MIKAGE](https://github.com/RE0-MIKAGE) is pony town's $$\color{#EDE0FB}𝚛𝐞𝚘\ \color{#CEABF6}𝐦𝚒𝐤𝚊𝐠𝚎!$$ $\tiny{\textsf{blue lock}}$
+
 <a href=https://github.com/riddledbatz>riddlebatz</a> is pony town's **$$\color{#E1E8F1}𝚛𝐢𝚍\\color{#B5BECB}𝚍𝐥𝚎𝐫!$$**
 
 [ramudaa](https://github.com/ramudaa) is pony town's $$\color{#F8DAF5}𝚛𝐚𝚖𝐮𝚍𝐚\ \color{#F6B8FA}𝚊𝐦𝚎𝐦𝚞𝐫𝚊!$$
@@ -170,6 +174,8 @@
 
 [sw33tsug4rcookie](https://github.com/sw33tsug4rcookie) is pony town's $$\color{#F5E8C7}𝚐𝐢𝚗𝐠𝚎𝐫\ \color{#DEBA9D}𝚝𝐡𝚎\ \color{#9E7777}𝐜𝚘𝐨𝚔𝐢𝚎!$$
 
+[siriuzs](https://github.com/siriuzs) is pony town's $$\color{#FFFDEC}𝚏𝐥𝚞𝐭𝚝\\color{#FFFAD1}𝐞𝚛𝐬𝚑𝐲!$$
+
 [tillaholic](https://github.com/tillaholic) is pony town's $$\color{#E4E9EC}𝚒𝐯\\color{#A9B0B6}𝚊𝐧!$$ $\tiny{\textsf{alien stage}}$
 
 <a href=https://github.com/undyingregret>undyingregret</a> is pony town's **$$\color{#DDCECF}𝚙𝐞\\color{#C69294}𝚜𝐭!$$**
@@ -184,11 +190,13 @@
 
 <a href=https://github.com/WhispedVanilla>WhispedVanlla</a> is pony town's **$$\color{#E4F1FF}𝚜𝐥𝚒𝐧𝚐\\color{#B3D7FB}𝚜𝐡𝚘𝐭!$$**
 
+[waverIy](https://github.com/waverIy) is pony town's $$\color{#EFE2CE}𝚝𝐰𝚘\ \color{#E4D5BC}𝐟𝚊𝐜𝚎!$$ $\tiny{\textsf{dc}}$
+
 <a href=https://github.com/Xaplastcore>Xaplastcore</a> is pony town's **$$\color{#CFC1EF}𝚘𝐩𝚝𝐢𝚖𝐮𝚜\ \color{#9D84D2}𝚙𝐫𝚒𝐦𝚎!$$** $\tiny{\textsf{transformers: shattered glass}}$
 
 <a href=https://github.com/yanderetan>yanderetan</a> is pony town's **$$\color{#FFDCEF}𝚙𝐨𝚕𝐚\\color{#FFBBE0}𝚛𝐜𝚞𝐛!$$**
 
-[yaasuhiro](https://github.com/yaasuhiro) is pony town's $$\color{#C3BBB6}yasuhiro\ \color{#9F8A7E}hagakure!$$
+[yaasuhiro](https://github.com/yaasuhiro) is pony town's $$\color{#C3BBB6}𝚢𝐚𝚜𝐮𝚑𝐢𝚛𝐨\ \color{#9F8A7E}𝚑𝐚𝚐𝐚𝚔𝐮𝚛𝐞!$$
 
 <a href=https://github.com/zyvism>zyvism</a> is pony town's **$$\color{#E7EDF7}𝚝𝐰𝚘\ \color{#A8BFE0}𝚝𝐢𝚖𝐞!$$**
 

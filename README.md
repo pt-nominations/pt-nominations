@@ -9,7 +9,7 @@
 <p align="center"><a href=https://nominations.straw.page>straw</a>
 
 <p align="center">$\tiny{\textsf{if i didnt add you it usually means the character you're nominating is already taken or the github is not correct! you can always try to nominate again!}}$
-<p align="center">$\tiny{\textsf{starting at August 5 I will the close the nominations temporarily, I will be doing this so I can focus on adding people without having to worry about new nominations! I am incredibly sorry if you didn't get the chance to nominate! but no worries nominations will reopen once I finished adding everyone in! [hoping it wouldn't take too long ╥﹏╥] }}$
+<p align="center">$\tiny{\textsf{starting at August 5 I will the close the nominations temporarily, I will be doing this so I can focus on adding people without having to worry about new nominations! I am incredibly sorry if you didn't get the chance to nominate! but no worries nominations will reopen once I finished adding everyone in! [hoping it wouldn't take too long ╥﹏╥]}}$
   
   <p align="center"><img width="98" height="34" alt="bow" src="https://github.com/user-attachments/assets/097ad329-fe50-4e3b-b0af-bce33d22ac1b" />
 

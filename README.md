@@ -121,6 +121,10 @@
 
 <a href=https://github.com/Grimembrace>Grimembrace</a> is pony town's **$$\color{#FFD1D3}cele\\color{#EBA7DD}stial!$$** $\tiny{\textsf{nullscape}}$
 
+[GHOSTBUSTERS-SFX](https://github.com/GHOSTBUSTERS-SFX) is pony town's $$\color{#EFEBE9}scared\ \color{#D7CCC8}french\ \color{#BCAAA4}soldier!$$ $\tiny{\textsf{guts and blackpowder}}$
+
+[Heart0fGold](https://github.com/Heart0fGold) is pony town's $$\color{#BCAAA4}ka\\color{#A1887F}rl!$$ $\tiny{\textsf{guts and blackpowder}}$
+
 <a href=https://github.com/heartoftheforest>heartoftheforest</a> is pony town's **$$\color{#FFFCEF}ken\\color{#FFF5BF}neth!$$** $\tiny{\textsf{craig of the creek}}$
 
 [Hound-Of-Ulster](https://github.com/Hound-Of-Ulster) is pony town's $$\color{#A6CFF1}𝚌ú\ \color{#A6CFF1}chu\\color{#7EBCEF}lainn!$$ $\tiny{\textsf{fate series}}$
@@ -162,6 +166,8 @@
 [meteoroiogist](https://github.com/meteoroiogist) is pony town's $$\color{#D8DADB}vincent\ \color{#C7CACB}whittman!$$
 
 [monachgrievings](https://github.com/monachgrievings) is pony town's $$\color{#C4D7E6}lord\ \color{#B2C7D7}x!$$
+
+[mydigitalescape](https://github.com/mydigitalescape) is pony town's $$\color{#ECEFF1}robert\ \color{#CFD8DC}chase!$$ $\tiny{\textsf{house md}}$
 
 [oncology-angel](https://github.com/oncology-angel) is pony town's $$\color{#F0F2F2}shuntaro\ \color{##D9DEDE}chishiya!!$$
 

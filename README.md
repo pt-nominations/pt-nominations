@@ -17,7 +17,7 @@
 
 **⍴rᥱ𝗍𝗍іᥱs𝗍 ⍴᥆ᥒіᥱs:** <a href=https://github.com/misfortunes-s>misfortunes-s</a> <a href=https://github.com/itrap-2245>itrap-2245</a> <a href=https://github.com/aesvic>aesvic</a> <a href=https://github.com/ArtistsLeafRibbon>ArtistsLeafRibbon</a> <a href=https://github.com/01yaoimaster>01yaoimaster</a> <a href=https://github.com/sproutseedlymain>sproutseedlymain</a> <a href=https://github.com/aklangell>aklangell</a> <a href=https://github.com/AcxerSonnellino>AcxerSonnellino</a> <a href=https://github.com/Nadd-nadd>Nadd-nadd</a> [puppyfes](https://github.com/puppyfes) [yaasuhiro](https://github.com/yaasuhiro) [arachnidace](https://github.com/arachnidace) [conexlonn](https://github.com/conexlonn) [sorbetflakes](https://github.com/sorbetflakes) [piehiker](https://github.com/piehiker)
 
-**ᥴᥙ𝗍ᥱs𝗍 ⍴᥆ᥒіᥱs:** <a href=https://github.com/pupfies>pupfies</a> <a href=https://github.com/electrifypink>electrifypink</a> <a href=https://github.com/pawfectangel>pawfectangel</a> [parameowia](https://github.com/parameowia) [realdustsans](https://github.com/realdustsans) [ramudaa](https://github.com/ramudaa) [siriuzs](https://github.com/siriuzs) [GFPAW](https://github.com/GFPAW)
+**ᥴᥙ𝗍ᥱs𝗍 ⍴᥆ᥒіᥱs:** <a href=https://github.com/pupfies>pupfies</a> <a href=https://github.com/electrifypink>electrifypink</a> <a href=https://github.com/pawfectangel>pawfectangel</a> [parameowia](https://github.com/parameowia) [realdustsans](https://github.com/realdustsans) [ramudaa](https://github.com/ramudaa) [siriuzs](https://github.com/siriuzs) [GFPAW](https://github.com/GFPAW) [DaaeChristine](https://github.com/DaaeChristine)
 
 <p align="center"><img width="601" height="21" alt="1000001273" src="https://github.com/user-attachments/assets/5f6654ed-6461-48a7-a271-780aa203cb65" />
 
